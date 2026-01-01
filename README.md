@@ -15,9 +15,4 @@ No code, just notes and ideas ✍️
 ---
 
 ✨ Web3 is about creativity, community, and ownership.!!666
-
-1111
-rtt
-3333
-4444
-344
+5ttyr
