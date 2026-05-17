@@ -15,15 +15,4 @@ No code, just notes and ideas ✍️
 ---
 
 ✨ Web3 is about creativity, community, and ownership.!!666
-fgdgdfg
-dfsrtty
-fdfdsf
-rtyu
-errt
-dfgdfgsdsdsd
-hghghgfh
-fgdfg
-uyhiyui
-ghfghfgh
-jkljlk
-jkljljkl
+111111111111111111111
