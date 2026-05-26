@@ -17,3 +17,4 @@ No code, just notes and ideas ✍️
 ✨ Web3 is about creativity, community, and ownership.!!666
 111111111111111111111
 jhgjghj
+sdsad
