@@ -13,7 +13,7 @@ This repo is just for learning and documenting my journey in the NFT space.
 No code, just notes and ideas ✍️  
 
 ---
-
+erer
 ✨ Web3 is about creativity, community, and ownership.!!666
 111111111111111111111
 fgfdgf
