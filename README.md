@@ -16,11 +16,3 @@ No code, just notes and ideas ✍️
 erer
 ✨ Web3 is about creativity, community, and ownership.!!666
 
-vbvb
-dfdfdf
-iio
-777klklkl
-sdsd
-dfdfsfsdf
-d
-dfdf
