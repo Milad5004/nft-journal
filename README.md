@@ -1,4 +1,4 @@
-# NFT Journal 🎨
+f# NFT Journal 🎨
 
 A simple place to write down my thoughts and findings about **NFTs and digital art**.  
 
@@ -17,4 +17,4 @@ erer
 ✨ Web3 is about creativity, community, and ownership.!!666
 
 dsds
-tytry
+tytrydsfds
